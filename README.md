@@ -14,3 +14,4 @@ politely dniud when im with other people ingame!unless ur a friend ofcourse
 
 and to end this..
 always use w2i! i usually ignore public chats and im more likely to see whispers. i zone out often and get bored easily!
+also c+h!.. Im very open to it andlove it! unless im with other people im usually very nor cuddable ICWNT SPELL HELP
