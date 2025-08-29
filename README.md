@@ -10,6 +10,6 @@ please don't kiss me ingame! always feel free to interact with me!!!!!!unless i 
 
 (note ; if ur 16+ pls dni!!!! unless your a friend of one my siblings [because theyre older than me] , please dont try and pressure me for my age just know that i am a minor )
 
-PLEASE KNOW IM ACTUALLY YOUNG ( reason i have dni 16 and up is pretty obvious )
+because some people may have -14 dni and they int with me I AM IN YOUR DNI LIST / DO NOT INTERACT WITH ME UNLESS YOU'RE A FRIEND OF A FRIEND. ( yes that kind of reveals my age but I DOBT WANNA GET IN TROUBLE 4 SMTH W PPL
 
 i also REALLY like nightwing / if i dont have dni in my name GIVE ME PONY IDEAS!!!!!
