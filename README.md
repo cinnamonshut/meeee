@@ -13,4 +13,6 @@ please don't kiss me ingame! always feel free to interact with me!!!!!!unless i 
 hey also SOMETIMES I TAKE STYFF VERY LITERALLY
 sarcasm does not work on me Bro i will think ur deadass
 
-i also REALLY like nightwing / if i dont have dni in my name GIVE ME PONY IDEAS!!!!!
+i also REALLY like nightwing / also funfact barry allen is actually my fav character - i just like nightwing a lot becayse idk Nighgwinh
+
+i like to talk a lot cannyountell AHHHH
