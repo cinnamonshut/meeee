@@ -1,8 +1,7 @@
 # meeee
 
 
-hello my names cinnamon! im usually in my island map, dc area , or Dandys world area! sometimes you'll find me on docks
-usually i am with friends but c+h freely when im not! im usually not the first person to interact because well i get scared (somehow..) but i do love crowning people !,
+hello my names cinnamon! im usually ahh somewhere but c+h freely (unless not stated)! im usually not the first person to interact because well i get scared (somehow..) but i do love crowning people !,
 
 please do not copy any of my ponies! i dont mind inspiration because i myself did not invent any ponytown hacks (i just love using the helmet trick) and love seeing other keegan ponies!!!!!! butplease do not copy my exact pony
 
@@ -14,5 +13,7 @@ hey also SOMETIMES I TAKE STYFF VERY LITERALLY
 sarcasm does not work on me Bro i will think ur deadass
 
 i also REALLY like nightwing / also funfact barry allen is actually my fav character - i just like nightwing a lot becayse idk Nighgwinh
+
+also i am starting to hide freely / i will unfriend people for no reason. i will ONLY have my siblings (some of their friends) and partner added
 
 i like to talk a lot cannyountell AHHHH
