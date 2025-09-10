@@ -16,4 +16,4 @@ i also REALLY like nightwing / also funfact barry allen is actually my fav chara
 
 also i am starting to hide freely / i will unfriend people for no reason. i will ONLY have my siblings (some of their friends) and partner added
 
-i like to talk a lot cannyountell AHHHH
+funfact im istp-t faaaaartttt
