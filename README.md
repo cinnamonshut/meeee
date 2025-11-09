@@ -1,13 +1,15 @@
 # meeee
 
 
-hi my names bryce, or pest pr whatver. just call me a name?.?
+hi my names cinnamon or dave! or just call me a name?.? (please only use bryce if i know you! not a fan of the name.)
 
-politely dni hank and pest kins (i struggle to talk to you guys) thats kind of it.
+politely dniuid any problematic fandoms (forsaken, vivziepop hh or hb, yk who u are!) unless ur a friend of mine
 
 
-im a minor or whatever. ( dni 16+ 7NLESS i give you special permission to int like if ur a friend of one of my sibs/irl friends! you guys are cool. I HAVE VERY REASONABLE REASONS TO BE STRICT WITH AGE I think
+im a minor or whatever. ( dni 16+ 7NLESS i give you special permission to int like if ur a friend of one of my sibs/irl friends! you guys are cool!
 
 i unfriend freely / same with block. dm me if i unfriened you
 
-istp AHHHHOH MY GOD HOLY SUIT
+istp cris
+
+hi also dni trendhoppers,endosystems, IDONTKNOW dont fake stuff giys!
